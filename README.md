@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @IcemanWillis
 - 👀 I’m interested in PLC's, Electonics, Robotics ect....
 - 🌱 I’m currently learning everything my brain can obsorb.
-- ⌨ Been a Federally carded electrician surface and underground for 13yrs now... Industrial Electrical Supervisor.
+- ⌨ Been a Federally Carded Electrician surface and underground for 13yrs now... Industrial Electrical Supervisor for a Fortune 500 World Wide Company.
 - 
 
 <!---
